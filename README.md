@@ -8,4 +8,4 @@
 
 ### Para Contato ###
 -
-00001113993431sp@al.educação.sp.gov.br
+00001113993431sp@al.educacao.sp.gov.br
